@@ -1,3 +1,28 @@
+gosh hire
+
+function
+
+hire 
+
+good take
+         take
+             take
+                 take
+                     take
+                          million
+
+                          doing huh
+
+thing
+
+thing
+
+asure
+     winter
+
+a
+ location
+
 coffee
       things
 
